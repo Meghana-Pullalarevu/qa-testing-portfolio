@@ -57,4 +57,5 @@ Testing activities:
 
 ## Contact
 
-LinkedIn: Add your LinkedIn profile here
+LinkedIn: linkedin.com/in/meghana-reddy-29a692312
+Email: meghanapullarevu1902@gmail.com
